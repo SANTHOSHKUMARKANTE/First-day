@@ -1,3 +1,3 @@
 #Demo
 
-I ma new here
+I am new here, i want to explore myself.
