@@ -1,3 +1,1 @@
-#Demo
-
-I am new here, i want to explore myself.
+#remove all the things in the github
